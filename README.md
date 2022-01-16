@@ -14,7 +14,7 @@ all the best wishes for success
 ![about goal](https://cdn.technologyadvice.com/wp-content/uploads/2019/10/set-goals-and-kpis-01-700x408.png)      
 #The importance of good Consistency of the program   
 ![Consistency](https://thumbs.dreamstime.com/z/consistency-leads-to-money-success-business-life-symbolized-stairs-sign-pointing-golden-show-helps-becoming-208604778.jpg)    
-#take the existing codes and leave the reinvention  
+#Take the existing codes and leave the reinvention  
 ![Think less](https://thumbs.dreamstime.com/z/good-looking-man-thinking-great-idea-good-looking-man-thinking-great-idea-169736544.jpg)      
-#Open and read documents  
+#Open and read documentation  
 ![Open and read](https://d33wubrfki0l68.cloudfront.net/649a0df98c526954bbe63364f0e4a523f6373b81/34c3b/images/readwork.jpg)    
