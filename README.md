@@ -4,7 +4,7 @@ and i am very intrested in programming and its my childhood dream
 i thank you very much for doing such courses and i wish you further progress and success
 all the best wishes for success
 
-# Summary of particle i readed  
+# Summary of particle I readed  
 1-The importance of working as a team  
 ![work as a team](https://startupsmagazine.co.uk/sites/default/files/2020-11/AdobeStock_291895827ed.jpg)      
 2-Simplify the code as much as possible  
